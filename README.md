@@ -1,0 +1,2 @@
+# Eksmaen_BleonaR_2024
+Eksamen____2024
